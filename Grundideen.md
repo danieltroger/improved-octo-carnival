@@ -1,4 +1,4 @@
-#erste Ideen
+# erste Ideen
 
 1. die 2 hauptpersonen (raphael+samuel) hauen aus der schule und von zuhause ab (schulszene mit tisch umschmeißen und abhauen)
 2. raphael+samuel geraten mit janek und stefan in eine stecherei
