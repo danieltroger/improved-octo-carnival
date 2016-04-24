@@ -12,7 +12,7 @@ Kind: j'allais
       vous alliez
       ils/elles allaient (Kind betet alles korrekt herunter und der Lehrer schreibt alles an der Tafel mit)
 
-Lehrer: Sehr schön! So, kommen wir nun zu den Hausaufgebn! (wärend des sprechens fährt die Kamera durch eine Klasse disziplinierter Schüler,
+Lehrer: Sehr schön! So, kommen wir nun zu den Hausaufgaben! (wärend des sprechens fährt die Kamera durch eine Klasse disziplinierter Schüler,
 welche dem Unterricht aufmerksam folgen, bis nach hinten, wo Raphael und Samuel gelangweilt und dem Unterricht nicht folgend
 sitzen/auf dem Stuhl hängen. Man könnte kurze Ausschnitte eines Rapkonzertes wie in einem Traum einblenden) Raphael und Samuel
 was ist mit euch? (wärend des sprechens wir der Ton langsam ausgeblendet, die Musik beginnt)
