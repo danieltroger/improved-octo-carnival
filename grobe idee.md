@@ -1,3 +1,23 @@
+Szene 2
+
+Man sieht Raphael und samuel chillen (gierkeplatz am parkplatz vom raphsamsports video?) Janek und Stefan (und andere gruppenmotglieder) kommen angelaufen.
+Raph+sam: (pöbelnd) Na seid ihr auf dem weg zum kinder garten? (O.ä. wie zB. Guck dir mal die Affen an!(gelächter)
+
+Stafan: was ist? Wollt ihr Stress
+Janek: Genau, könnt ihr haben!
+Raphael: was wollt ihr mit euren Laucharmen denn anstellen?
+Samuel: (lächelnd) Eine Bombe und ihr liegt!
+Einer aus Stefans Gruppe: Na das wollen wir erst sehen (tritt eine Glasflasche von Raphael und Samuel um und sieht zu einem seiner Jungs der einen Stein aufhebt/messer rausholt) (kameraperspektive auf accesoir fokussiert)
+(Raphael und Samuel stehen auf und krempeln sich die Ärmel hoch.
+Luis: (kommt ins Bild) yey was ist denn hier los? Seid ihr zu feige das mit anspruch zu regeln oder seid ihr einfach nur zu dumm und wollt euch gegenseitig abschlachten?
+Stefans Gruppe: (alle schauen sich verwundert und leicht belustigt an aber sagen nichts)
+Samuel: Ok und wie stellst du dir das vor?
+Luis: Keine Ahnung gibt es nichts wo ihr euch alle testen könnt? Breakdance oder so?
+Janek: wir können skateboard fahren (nickt einem jungen mit skateboard zu, der sich selbstbewusst brüstet)
+Raphael: wir können doch auf den Beat der gerade läuft freestylen (beat der die ganze zeit lief kommt in den vordergrund. Man sieht die bose box)
+Stefan: Ok wir fangen an! Ok, aha, yeah! (Rappt einen ganz guten Text, es klingt aber schlecht da er hängen bleibt usw
+...
+
 Weiter szene 2
 
 Raphael und Samuel rappen entweder eine echt guten text nacheinander oder man sieht sie nur rappen und der ton beat läuft weiter. Danach schlagen alle gegenseitig ein. Raphael+Samuel haben gewonnen. Luis befragt alle warum sie nicht in der schule sind uvm:
