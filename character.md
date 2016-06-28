@@ -1,6 +1,6 @@
 character
 
-Raphael: Raphael (filmname= ?) ist 17 Jahre alt und ist seit der 7.klasse kein engagierter schüler mehr und zusammen mit Samuel (filmname: ? ) macht er viel Unsinn und geht des öfteren nicht zur schule. Eines tages beschließt er mit Samuel spontan die Schule zu verlassen und die beiden ziehen von Zuhause aus. Die Eltern kümmrn sich wenig um ihn.
+Raphael: Raphael (filmname ?) ist 17 Jahre alt und ist seit der 7.klasse kein engagierter Schüler mehr und zusammen mit Samuel (filmname ? ) macht er viel Unsinn und geht des öfteren nicht zur Schule. Eines Tages beschließt er mit Samuel spontan die Schule zu verlassen und die beiden ziehen von Zuhause aus. Die Eltern kümmern sich wenig um ihn.
 
 Charaktereigenschaften: ruhig, lässt sich nicht schnell provozieren, teilt jedoch gerne einmal aus, er folgt Samuels Ideen und befindet sich somit in der 2.Hauptrolle.
 
