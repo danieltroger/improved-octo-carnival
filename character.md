@@ -1,28 +1,14 @@
 character
 
-Raphael: Raphael (filmname= ?) ist 17 Jahre alt und ist seit der 7.klasse kein engagierter schüler mehr und zusammen mit Samuel (filmname: ? ) macht er viel
+Raphael: Raphael (filmname= ?) ist 17 Jahre alt und ist seit der 7.klasse kein engagierter schüler mehr und zusammen mit Samuel (filmname: ? ) macht er viel Unsinn und geht des öfteren nicht zur schule. Eines tages beschließt er mit Samuel spontan die Schule zu verlassen und die beiden ziehen von Zuhause aus. Die Eltern kümmrn sich wenig um ihn.
 
-unsinn und geht des öfteren nicht zur schule. Eines tages beschließt er mit Samuel spontan die Schule zu verlassen und die beiden ziehen von Zuhause aus.
-
-Die Eltern kümmrn sich wenig um ihn.
-
-Charaktereigenschaften: ruhig, lässt sich nicht schnell provozieren, teilt jedoch gerne einmal aus, er folgt Samuels Ideen
-
-und befindet sich somit in der 2.Hauptrolle.
+Charaktereigenschaften: ruhig, lässt sich nicht schnell provozieren, teilt jedoch gerne einmal aus, er folgt Samuels Ideen und befindet sich somit in der 2.Hauptrolle.
 
 Samuel: Samuel (Filmname ?) ist 16 Jahre alt und machte das gleiche wie Raphael durch.
 
-Charaktereigenschaften: lässt sich schneller als Raphael provozieren, ist aber nicht auf Stress aus. 
+Charaktereigenschaften: lässt sich schneller als Raphael provozieren, ist aber nicht auf Stress aus.Er übernimmt die führende Leitung der beiden Hauptdarsteller
 
-Er übernimmt die führende Leitung der beiden Hauptdarsteller
-
-Luis: Luis (Filmname ?) ist 17 Jahre alt und ist in der 5. Klasse aus einer anderen Schule abgehauen und später bei seinen Eltern,
-
-welche sich zu wenig um ihn kümmerten ausgezogen er schlug sich alleine durch, fand einen Schlafplatz, verdiente Geld mit betteln und
-
-wird im Film erst zu einem Mentor von Raphael und Samuel und wird später im Film verschwinden (abgehauen, tod oä.), was bedeutet,
-
-dass Raphael und Samuel auf sich alleine gestellt sind.
+Luis: Luis (Filmname ?) ist 17 Jahre alt und ist in der 5. Klasse aus einer anderen Schule abgehauen und später bei seinen Eltern, welche sich zu wenig um ihn kümmerten ausgezogen er schlug sich alleine durch, fand einen Schlafplatz, verdiente Geld mit betteln und wird im Film erst zu einem Mentor von Raphael und Samuel und wird später im Film verschwinden (abgehauen, tod oä.), was bedeutet, dass Raphael und Samuel auf sich alleine gestellt sind.
 
 Charaktereigenschaften: sehr ruhig, versucht immer Streit zu schlichten, ist sehr gerecht und hilfsbereit
 
